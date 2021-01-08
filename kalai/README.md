@@ -1,2 +1,0 @@
-# kalai
-ss
